@@ -1,2 +1,2 @@
 # ms-np.github.io
-my user name homepage for amazing portfolio
+Miss Nadia's homepage for amazing portfolio
